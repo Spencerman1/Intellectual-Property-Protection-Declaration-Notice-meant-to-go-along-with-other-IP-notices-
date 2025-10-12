@@ -1,0 +1,2 @@
+# Intellectual-Property-Protection-Declaration-Notice-meant-to-go-along-with-other-IP-notices-
+This Intellectual Property Protection Declaration Notice meant to go along with other IP notices and is in no way meant to limit my IP, bottle neck or narrow the scope of my work. To not be interpreted in any other way than what Spencer Southern means it to be understood. If you are unaware it is your responsibility to ask not assume or interpret.
